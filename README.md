@@ -1,5 +1,5 @@
 # 🚀 About Me:
-⚡ | User-centered Software engineer<br>💚 | Making work fulfilling for everyone (@torre-labs)[https://github.com/torre-labs]<br>🌱 | I'm currently learning to create AI.<br>📍 | Remote from Medellín, Colombia
+⚡ | User-centered Software engineer<br>💚 | Making work fulfilling for everyone in [@torre-labs](https://github.com/torre-labs)<br>🌱 | I'm currently learning to create AI.<br>📍 | Remote from Medellín, Colombia
 
 
 ## 🌐 Socials:
