@@ -1,5 +1,5 @@
 # 🚀 About Me:
-⚡ | User-centered Software engineer<br>💜 | | I am currently growing up to be a product engineer.<br>📍 | Remote from Medellín, Colombia
+⚡ | User-centered Software engineer<br>💜 | I am currently growing up to be a product engineer.<br>📍 | Remote from Medellín, Colombia
 
 
 ## 🌐 Socials:
